@@ -9,5 +9,5 @@ i also love :cloud:, :tulip:, and :baguette_bread:
 lastly, i enjoy baking and weightlifting
 
 thanks for meeting me, 
-i hope we can teamp up to create great stuff together
+i hope we can team up to create great stuff together
 
